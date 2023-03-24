@@ -1,0 +1,1 @@
+🥴 Exploring the easiest and most hated language 🥴
